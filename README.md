@@ -1,0 +1,1 @@
+# Genetick-algoritmus---bin-rn-probl-m
